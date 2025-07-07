@@ -1,1 +1,1 @@
-# CC
+# CC ![imagedescp](https://media.discordapp.net/attachments/1277011241658749062/1342244131363098704/1c2a3a19-6104-452b-822c-b3147d060f6e.gif?ex=686c39c2&is=686ae842&hm=295a7e4931e4a7c2c675e6ce32fc50d8a20f256cd0ecd0f18ea601195c932376&=&width=482&height=362)
