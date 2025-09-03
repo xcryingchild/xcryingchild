@@ -4,4 +4,5 @@
 ![89153119-c871-4370-a8b9-874dfacbf93a](https://github.com/user-attachments/assets/df21bc17-69bf-4bb8-86d8-732827439c3c)
 
 
-DNI: KPDH fans, Helluva boss/Hazbin hotel fans, 🖌️ Dandy's World [ALPHA] fans,
+DNI: KPDH fans, Helluva boss/Hazbin hotel fans, 🖌️ Dandy's World [ALPHA] fans
+credits to miek my glorious king that sent me this 😲
