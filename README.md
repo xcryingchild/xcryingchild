@@ -4,3 +4,4 @@
 ![89153119-c871-4370-a8b9-874dfacbf93a](https://github.com/user-attachments/assets/df21bc17-69bf-4bb8-86d8-732827439c3c)
 
 
+ask before c+h oke? :D JUST SO I CAN TELL YOU WHERE TO SIT!! since im always with another person :))
