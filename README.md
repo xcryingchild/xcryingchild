@@ -7,3 +7,6 @@
 ask before c+h oke? :D JUST SO I CAN TELL YOU WHERE TO SIT!! since im always with another person :))
 
 YOU ALL ARE SO COOL ON MY "COLOR MY TREE" I LOVE YOU GUYS WAHT and i shall give food to the two taht were very hungry for food oke? :))
+
+
+<img width="1051" height="613" alt="Screenshot 2025-12-26 133012" src="https://github.com/user-attachments/assets/fc4cc518-c45f-4d72-878f-0b680942599b" />
