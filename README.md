@@ -7,3 +7,6 @@
 
 <img width="513" height="416" alt="image" src="https://github.com/user-attachments/assets/ff5f1377-b5e9-461a-b38a-089d8ae15b29" />
 
+
+
+<img width="1080" height="712" alt="Screenshot-2026-08-17-20-47-23-285-com-discord-edit" src="https://github.com/user-attachments/assets/1d3d4fef-f94a-4ee6-af87-33fb58fa350d" />
