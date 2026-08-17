@@ -10,4 +10,3 @@
 
 
 <img width="1080" height="712" alt="Screenshot-2026-08-17-20-47-23-285-com-discord-edit" src="https://github.com/user-attachments/assets/1d3d4fef-f94a-4ee6-af87-33fb58fa350d" />
-<img [url=https://postimages.org/][img]https://i.postimg.cc/dthzLpBg/Screenshot-2026-08-17-20-47-23-285-com-discord-edit.jpg[/img][/url] />
