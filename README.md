@@ -5,7 +5,7 @@
 
 
 
-<img width="513" height="416" alt="image" src="https://github.com/user-attachments/assets/ff5f1377-b5e9-461a-b38a-089d8ae15b29" />
+<img width="513" height="416" alt="image" src="file:///C:/Users/%C3%B6lkbhjlizfvc%C3%B6b%C3%A4-/OneDrive/Bilder/Screenshots/Screenshot%202026-09-20%20235255.png" />
 
 
 
