@@ -5,7 +5,7 @@
 
 
 
-<img width="513" height="416" alt="image" src="file:///C:/Users/%C3%B6lkbhjlizfvc%C3%B6b%C3%A4-/OneDrive/Bilder/Screenshots/Screenshot%202026-09-20%20235255.png" />
+<img width="513" height="416" alt="image" src="https://files.catbox.moe/ns8bxh.png" />
 
 
 
