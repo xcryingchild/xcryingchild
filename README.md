@@ -5,7 +5,7 @@
 
 
 
-<img width="513" height="416" alt="image" src="[https://files.catbox.moe/ksle06.png](https://files.catbox.moe/r8o2x6.png)" />
+<img width="513" height="416" alt="image" src="[https://files.catbox.moe/r8o2x6.png)" />
 
 
 
