@@ -35,9 +35,22 @@
 
 <p align="left">
   <img src="https://github.com/user-attachments/assets/c6457ad7-67c7-46c4-8f81-708a1f1b40b7" width="160">
-  <img src="https://img.shields.io/static/v1?label=%F0%90%94%8C%E1%83%9E.%20.%E1%83%9E%F0%90%A6%AF&message=%E2%8A%B9%20%E0%A3%AA%20%CB%96&labelColor=A5483F&color=BC7555">
+  <img src="https://img.shields.io/static/v1?label=%F0%90%94%8C%E1%83%9E.%20.%E1%83%9E%F0%90%A6%AF&message=%E2%8A%B9%20%E0%A3%AA%20%CB%96&labelColor=A5483F&color=BC7555"> Art is a precious fruit of leisure.
 </p>
 
+
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/0c22197e-8bb8-43be-b16e-63eb79620aaa" width="500" height="100">
+  &nbsp;&nbsp;&nbsp;&nbsp;
+  <img src="https://github.com/user-attachments/assets/5659f7cb-3b37-4d3b-96bd-83289cee3b17" width="560" height="160">
+</p>
+
+
+<p align="center">
+  &nbsp;&nbsp;&nbsp;&nbsp;
+  <img src="https://github.com/user-attachments/assets/398800cd-b480-4363-9bc9-b0ac5c58dd7b" width="560" height="160">
+</p>
+
+<p align="left">
+<img width="190" alt="bria-rmbg3-cutout (33)" src="https://github.com/user-attachments/assets/a778b23b-7434-4328-8757-5e876cc4fa55" /> 
+<img src="https://img.shields.io/static/v1?label=%F0%9D%84%9E%F0%9D%84%A2&message=%E2%86%BB%20%E2%97%81%20%7C%7C%20%E2%96%B7%20%E2%86%BA&labelColor=3CA698&color=00838D"> No art form is eternal.
 </p>
