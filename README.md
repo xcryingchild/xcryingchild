@@ -54,3 +54,7 @@
 <img width="190" alt="bria-rmbg3-cutout (33)" src="https://github.com/user-attachments/assets/a778b23b-7434-4328-8757-5e876cc4fa55" /> 
 <img src="https://img.shields.io/static/v1?label=%F0%9D%84%9E%F0%9D%84%A2&message=%E2%86%BB%20%E2%97%81%20%7C%7C%20%E2%96%B7%20%E2%86%BA&labelColor=3CA698&color=00838D"> No art form is eternal.
 </p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/03f258c1-c40d-4139-a108-fce87c923b87" width="550">
+</p>
