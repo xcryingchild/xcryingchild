@@ -21,7 +21,7 @@
 <a href="https://github.com/buildermonyaoi">@buildermonyaoi</a>
 <a href="https://github.com/swoocket">@swoocket</a>
 <a href="https://github.com/PorphyroRoyal">@PorphyroRoyal</a>
-<a href="https://github.com/themacewielder">@themacewielder</a>
+<a href="https://github.com/themacewielder">@themacewielder</a> i love all of my friends（*＾-＾*）
 
 </details>
 
